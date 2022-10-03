@@ -1,3 +1,0 @@
-- 👋 Hi, I’m @Ckt33
-- 👀 I’m interested in Gaming and how the games work
-- 📫 How to reach me: Discord Ckt3#2839
